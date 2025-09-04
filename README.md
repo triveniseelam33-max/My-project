@@ -1,1 +1,2 @@
-# My-project
+S Triveni 
+Aditya Degree college 
